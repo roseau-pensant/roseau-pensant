@@ -1,6 +1,6 @@
 # Hi there 👋
 
-## welcome my page ~
+## Coming soon reseau-pensant page ... developing my web page
 ### 2024.03 ~
 
 
